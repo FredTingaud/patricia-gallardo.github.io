@@ -217,7 +217,7 @@ Rock Yiu <br>
 Adriaan de Groot <br>
 Patrick M. Hausen <br>
 Sebastian Raaphorst <br>
-Johan Ludvig Brattås <br>
+Fred Tingaud <br>
 
 
 Ways to sign this letter:
